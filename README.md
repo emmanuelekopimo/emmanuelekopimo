@@ -1,7 +1,7 @@
 
 # Emmanuel Akpan (emmanuelekopimo)
 
-**CEO @ Acadeva • Software Developer • Startup Builder**
+**building @ Acadeva • Software Developer • Startup Builder**
 
 Uyo, Akwa Ibom, Nigeria
 
